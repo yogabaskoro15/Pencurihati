@@ -1,1 +1,2 @@
 # Pencurihati
+kegabutan semata
